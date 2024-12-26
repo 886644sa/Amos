@@ -1,0 +1,2 @@
+# Amos
+Behind hamko haspital 
